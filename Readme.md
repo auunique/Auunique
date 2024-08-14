@@ -1,6 +1,4 @@
-Certainly! Here’s the revised content with the updated first line, including a link to your homepage:
 
-```html
 <h1 align="center">How to Measure for Your Radiator Covers</h1>
 
 <p align="center">
