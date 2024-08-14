@@ -1,5 +1,5 @@
 # How to Measure for Your Radiator Cover
-<p align="center"> <img src="https://auunique.co.uk/wp-content/uploads/2023/03/radiator-cover-measurement-guide-1024x576.jpg" alt="Radiator Cover Measurement Guide" style="width:350px;height:300px;"> </p> Accurately measuring your radiator is crucial for ensuring a perfect fit for your new radiator cover. Follow this comprehensive guide to obtain the correct measurements and choose the ideal cover for your space.
+<p align="center"> <img src="[https://auunique.co.uk/wp-content/uploads/2023/03/radiator-cover-measurement-guide-1024x576.jpg](https://i0.wp.com/auunique.co.uk/wp-content/uploads/2023/04/radiator-measuring-guide.jpg?resize=768%2C298&ssl=1)" alt="Radiator Cover Measurement Guide" style="width:350px;height:300px;"> </p> Accurately measuring your radiator is crucial for ensuring a perfect fit for your new radiator cover. Follow this comprehensive guide to obtain the correct measurements and choose the ideal cover for your space.
 Essential Measurements
 Width
 Measure the total width of your radiator, including any valves or pipes. Add an extra 20mm to this measurement to allow for proper fit and ventilation.
