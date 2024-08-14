@@ -23,12 +23,6 @@ Measure from the wall to the front of your radiator, including any protruding pa
 **Skirting Boards**  
 If your radiator sits in front of a skirting board, measure its height and depth. This information is crucial for ensuring a proper fit against the wall.
 
-**Pipe Locations**  
-Note the positions of pipes entering and exiting your radiator. This helps in determining if you need a slotted bottom board or pipe collars.
-
-**Wall Type**  
-Consider whether your wall is solid or has a dado rail, as this may affect the cover design.
-
 ## Ordering Process for Bespoke Furniture
 
 1. Submit your measurements through the website's order form for bespoke furniture.
