@@ -2,7 +2,7 @@
 <h1 align="center">How to Measure for Your Radiator Covers</h1>
 
 <p align="center">
-<img src="https://i0.wp.com/auunique.co.uk/wp-content/uploads/2023/04/radiator-measuring-guide.jpg" alt="Radiator Cover Measurement Guide" style="width:350px;height:300px;">
+<img src="https://i0.wp.com/auunique.co.uk/wp-content/uploads/2023/04/radiator-measuring-guide.jpg" alt="Radiator Cover Measurement Guide" style="width:550px;height:300px;">
 </p>
 
 Accurately measuring for your <a href="https://auunique.co.uk/">Auunique radiator cover</a> is crucial for ensuring a perfect fit for your new radiator cover. Follow this comprehensive guide to obtain the correct measurements and choose the ideal custom radiator cabinet for your space.
