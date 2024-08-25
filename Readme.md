@@ -31,4 +31,4 @@ If your radiator sits in front of a skirting board, measure its height and depth
 
 By following these guidelines, you can ensure that your new radiator cover will fit perfectly, enhancing both the functionality and aesthetics of your space. Remember, precise measurements are key to achieving the best results.
 
-For more inspiration and to view our collection of radiator covers and bespoke furniture, visit our homepage: <a href="https://auunique.co.uk/">AU UNIQUE</a>.
+For more inspiration and to view our collection of radiator covers and bespoke furniture, visit our homepage: <a href="https://auunique.co.uk/product-category/radiator-covers/">AU UNIQUE</a>.
